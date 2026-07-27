@@ -6,3 +6,30 @@
 </div>
 <p align="center">
 <img src="https://i.postimg.cc/25DHKWND/Untitled178-20260727023221.png" width=200>
+<p align="center">
+$\color{#716B66}{\textsf{𝑝𝑜𝑛𝑦 𝑡𝑜𝑤𝑛 𝑡𝑎𝑔𝑠 }}$
+<p align="center">
+$\color{#916644}{\textsf{༝ }}$
+<p align="center">
+$\color{#916644}{\textsf{𝐷𝑁𝐼/𝑅𝑃𝐷𝑁𝐼, 𝐷𝑁𝑇𝑈𝐹, 𝑊2𝐼, 𝐷𝑁𝐶.}}$
+<p align="center">
+$\color{#916644}{\textsf{𝐼 𝑜𝑓𝑡𝑒𝑛 𝑠𝑒𝑚𝑖 𝑎𝑓𝑘.}}$
+<p align="center">
+$\color{#916644}{\textsf{𝑖 ℎ𝑎𝑣𝑒 𝑠𝑜𝑐𝑖𝑎𝑙 𝑎𝑛𝑥𝑖𝑒𝑡𝑦, 𝑝𝑙𝑒𝑎𝑠𝑒 𝑏𝑒 𝑝𝑎𝑡𝑖𝑒𝑛𝑡}}$
+<p align="center">
+$\color{#916644}{\textsf{༝}}$
+<p align="center">
+$\color{#716B66}{\textsf{𝐼 𝑜𝑓𝑡𝑒𝑛 𝑎𝑣𝑜𝑖𝑑 𝑐𝑜𝑚𝑚𝑢𝑛𝑖𝑐𝑎𝑡𝑖𝑜𝑛}}$
+$\color{#716B66}{\textsf{𝑏𝑒𝑐𝑎𝑢𝑠𝑒 𝑜𝑓 𝑚𝑦 𝑎𝑛𝑥𝑖𝑒𝑡𝑦.}}$
+<p align="center">
+<img src="https://i.postimg.cc/ZnWnzCtG/6e4d5995-6cc2-41fb-9ffd-97e22e3f1259-edit-242621287482249.png" width=80>
+<p align="center"
+
+ [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞.](https://kruassan.straw.page) [𝑨𝒓𝒕𝑭𝒊𝒈𝒉𝒕.](https://artfight.net/~Kruassan)
+
+<p align="center">
+<img src="https://i.postimg.cc/0QKc2ZfM/IMG-20260722-183533.jpg"  width=300> 
+
+ <p align="center">
+
+ 
