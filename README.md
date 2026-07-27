@@ -30,6 +30,13 @@ $\color{#716B66}{\textsf{𝑏𝑒𝑐𝑎𝑢𝑠𝑒 𝑜𝑓 𝑚𝑦 𝑎𝑛
 <p align="center">
 <img src="https://i.postimg.cc/0QKc2ZfM/IMG-20260722-183533.jpg"  width=300> 
 
+ 
  <p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31odgdvgun7rimtdqfrvpu3jaccy&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31odgdvgun7rimtdqfrvpu3jaccy&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=5c462b&bar_color_cover=false">
+  </a>
+</p>
+
+  
 
  
