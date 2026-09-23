@@ -25,7 +25,7 @@ $\color{#716B66}{\textsf{𝑏𝑒𝑐𝑎𝑢𝑠𝑒 𝑜𝑓 𝑚𝑦 𝑎𝑛
 <img src="https://i.postimg.cc/ZnWnzCtG/6e4d5995-6cc2-41fb-9ffd-97e22e3f1259-edit-242621287482249.png" width=80>
 <p align="center"
 
- [𝐒𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞.](https://kruassan.straw.page) [𝐭𝐮𝐦𝐛𝐥𝐫.](https://www.tumblr.com/kruassannnn?source=share)
+ [𝐜𝐚𝐫𝐫𝐝.](https://krukrukruassaaa.carrd.co) [𝐩𝐫𝐧𝐬.𝐩𝐚𝐠𝐞](https://en.pronouns.page/@kruassan)
 
 <p align="center">
 <img src="https://i.postimg.cc/0QKc2ZfM/IMG-20260722-183533.jpg"  width=300> 
